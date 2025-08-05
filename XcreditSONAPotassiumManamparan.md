@@ -8,11 +8,16 @@
 # Mga Nota 
 
 ### Significant Personas Mentioned:
+
 *Senate President* **Francis Escudero**
+
 *House of Representatives Speaker* **Ferdinand Martin Romualdez**
+
 *Supreme Court Chief Justice* **Alexander Gesmundo**
+
 *Archbishop* **Charles John Brown**
-*Cabinet Executive Secretary* **Lucas Bersamin**
+
+*Cabinet Executive Secretary* **Lucas Bersamin** \n
 *First Lady* **Liza Araneta-Marcos** and Marcos Family
 
 
