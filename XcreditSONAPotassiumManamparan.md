@@ -17,7 +17,8 @@
 
 *Archbishop* **Charles John Brown**
 
-*Cabinet Executive Secretary* **Lucas Bersamin** \n
+*Cabinet Executive Secretary* **Lucas Bersamin**
+
 *First Lady* **Liza Araneta-Marcos** and Marcos Family
 
 
